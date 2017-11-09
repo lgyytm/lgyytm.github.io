@@ -1,1 +1,0 @@
-# mingoljm.github.io
